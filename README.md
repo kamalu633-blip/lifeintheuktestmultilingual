@@ -1,4 +1,4 @@
-# lifeintheuktestmultilingual
+# lifeintheukmultilingual
 privacy policy
 
 PRIVACY POLICY
